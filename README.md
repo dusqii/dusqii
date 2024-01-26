@@ -7,6 +7,8 @@
 
 - Discord: **dusqii**
 
+- Revolt: **TBD**
+  
 - I’m currently learning **Javascript, HTML + CSS, Python**
 
 - Linkedin: **Jamie Pistone**
