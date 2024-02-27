@@ -15,7 +15,7 @@
 
 - Pronouns.page: [https://pronouns.page/@duskybee](https://pronouns.page/@duskybee)
 
-- How to reach me **jamiepistone42@gmail.com (professional), jammyammy1@gmail.com (personal), 25zpistone@olsd.us (school)**
+- How to reach me **jamiepistone42@gmail.com (professional), jammyammy1@gmail.com (personal)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
